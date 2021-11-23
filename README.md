@@ -6,4 +6,4 @@
 
 【公告】欢迎使用麒麟科技，祝您游戏愉快！【公告】  
 
-【脚本】https://app.yinxiang.com/fx/23b9feb8-1233-4fc9-8faa-170c30baf51a【链接】
+【脚本】http://jiami.guimei.work/a/1637693809.txt【链接】
